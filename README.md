@@ -1,7 +1,7 @@
   https://raw.githubusercontent.com/nymurbd/Youtube-to-m3u/main/youtube.m3u
 https://raw.githubusercontent.com/nymurbd/Yout48933417
-- 📫 How to reach me ...
-- 😄 Pronoun
+http://guvfwwp.mexamo.xyz/get.php?username=3158600252&password=3739128775&output=ts&type=m3u_plus
+https://raw.githubusercontent.com/FunctionError/PiratesTv/main/combined_playlist.m3u
 - ⚡ Fun fact: ...
 
 <!---
